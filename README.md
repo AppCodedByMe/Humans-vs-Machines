@@ -90,27 +90,3 @@ Up until this point, nothing has been particularly "difficult."
 
 My basic problem solving strategy is what it always has been since Google became a populat search engine, I'll Google a question, and so far it brings me right to the MDN link. If that doesn't work, I'll scour the Internet for he answers, or I'll post to the discussion group, or hit up Stack Overflow.
 
-
-10:00 a.m. - I opened up my email, and learned I received a Google Scholarship to complete Udacity's Front End Development Nanodegree online coding boot camp. 
-
-
-3:14 a.m. Listened to BrettDev give a realistic breakdown of how long it might take to create a stable career as a knowledgeable WordPress developer. Also, listened to some very realistic videos he posted about living expenses in Chiang Mai, Thailand. Finally, I've enrolled in his free Freelancing Masterclass.
-
-What I learned about 
-
-
-7K Baht for 6 Month Contract - Fu Residence
-https://www.youtube.com/channel/UCNgicP9xbky0geQV7xLH_QA
-
-
-
-1908		A wireless message is sent long-distance for the first time from the Eiffel Tower in Paris.
-
-
-----------------------------
-64;jPexO 
-
-Design
-r9i3gh
-64;jPexO12@Me
-
